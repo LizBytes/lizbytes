@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Liz
 - 🌱 Started a new GitHub profile
-- 📫 [Letterbird](https://letterbird.co/liz)
+- 📫 [Letterbird](https://letterbird.co/liz) or Hello at lizbytes.com
 - 😄 Pronouns: she/her
